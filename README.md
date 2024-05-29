@@ -8,5 +8,6 @@ Você pode entrar em contato comigo 📫
 00001080017768@al.educacao.sp.gov.br
 @dudinhalinda
 
-![]![niall-banho](https://github.com/mariadudinhatop/estudantealurastart/assets/171181155/7c71b445-081c-4973-a6be-b4aec20e57f0)
+![niall-banho](https://github.com/mariadudinhatop/estudantealurastart/assets/171181155/7c71b445-081c-4973-a6be-b4aec20e57f0)
+![Uploading jhope-funny-confused-reaction-qdydnjc9dnrr96r1.gif…]()
 
